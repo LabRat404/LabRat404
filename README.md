@@ -1,3 +1,9 @@
+Welcome and take a look! 
+Portal for Doria to catch up -> https://github.com/LabRat404/I_miss_u
+
+![DearestInfamousCowrie-size_restricted](https://user-images.githubusercontent.com/44639057/211350519-bd02d104-b2f6-46ab-9558-e6dee99264d7.gif)
+
 ![contributions](https://user-images.githubusercontent.com/44639057/211349650-c37efe6d-1707-4550-8d06-8bae55f23cee.svg)
 
-![68747470733a2f2f6d65646961302e67697068792e636f6d2f6d656469612f336f74506f72574c514a7135476d485274752f67697068792e676966](https://user-images.githubusercontent.com/44639057/211349803-59ae1da2-453f-4dc9-9030-d88e196391d6.gif)
+Wish you all a good day!
+                   -Tang
